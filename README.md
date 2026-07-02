@@ -1,5 +1,5 @@
 # Akram Latif
-**Cybersecurity Student · AI Builder by Obsession**
+**Information Technology Student · AI Builder by Obsession**
 
 *BS Computer Science / Cybersecurity — National University of Technology (NUTECH), Islamabad*
 
